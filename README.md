@@ -5,7 +5,7 @@
 # Tại sao phải chứng minh tài chính?
 
 # Chứng minh tài chính là yêu cầu cơ bản trong quy trình xét duyệt visa du học tại Châu Âu. Việc này nhằm:
-
+Xem thêm: https://dichvutaichinh.vn/chung-minh-tai-chinh-du-hoc-chau-au.html
 # 
 
 # Đảm bảo bạn không gặp khó khăn tài chính trong thời gian học.
